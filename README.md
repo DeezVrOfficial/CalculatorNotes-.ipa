@@ -1,2 +1,2 @@
-# CalculatorNotes-.ipa
-Click the website!
+It is illegal to plagiarize this!
+
